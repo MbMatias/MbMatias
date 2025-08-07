@@ -12,7 +12,7 @@
 
 ## Sobre
 
--fazendo faculdade de T.I- tecnologias para a interne.
+-fazendo faculdade de T.I- tecnologias para a internet.
 
 
 ## Contato
