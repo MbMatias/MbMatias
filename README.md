@@ -13,12 +13,13 @@
 ## Sobre
 
 -fazendo faculdade de T.I- tecnologias para a internet.
+-Em busca de trabalhar em tempo intergral.
 
 
 ## Contato
 
 
-- [Instagram - NbMatias](https://www.instagram.com/professorcorrea)
+- [Instagram - MbMatias]((https://www.instagram.com/mbmatias_/))
 
 ---
 
