@@ -12,7 +12,7 @@
 
 ## Sobre
 
--fazendo faculdade de T.I- tecnologias para a internet.
+-fazendo faculdade de T.I- sistemas para a internet.
 -Em busca de trabalhar em tempo intergral.
 
 
